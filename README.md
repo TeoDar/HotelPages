@@ -1,1 +1,1 @@
-Fuc
+https://teodar.github.io/HotelPages/
